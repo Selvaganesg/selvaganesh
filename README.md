@@ -43,7 +43,7 @@ Coming soon! I'm continuously working on improving my programming skills and bui
 ### 🔗 Connect With Me
 
 - 💼 LinkedIn: [Selvaganesh](https://www.linkedin.com/in/selvaganeshb/)
-- 🐙 GitHub: [My GitHub Profile](https://github.com/YOUR_GITHUB_USERNAME)
+- 🐙 GitHub: [Selvganesg](https://github.com/selvaganesg)
 
 ---
 
